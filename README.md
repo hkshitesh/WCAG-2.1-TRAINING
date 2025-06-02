@@ -7,7 +7,7 @@ https://forms.office.com/r/SjBJjJ1kPi
 
 https://www.w3.org/WAI/WCAG22/Understanding/
 
-## Post Assesment Quiz
+## Post Assessment Quiz
 
 https://forms.office.com/r/k3TUM6vbe1
 
